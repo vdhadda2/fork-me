@@ -12,7 +12,7 @@ Jessica	Carson
 
 Amanda Chrisanty
 
-Vibhor Dhadda
+Vibhor Dhadda is a travel and car enthusiast. 
 
 Abhay	Gohel
 
